@@ -1,1 +1,0 @@
-# monologue-of-a-plastic-bag-
